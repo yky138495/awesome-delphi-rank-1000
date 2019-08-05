@@ -1,0 +1,1 @@
+# awesome-delphi-rank-1000
